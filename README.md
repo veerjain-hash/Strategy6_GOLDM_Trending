@@ -1,0 +1,1 @@
+# Strategy6_GOLDM_Trending
